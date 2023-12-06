@@ -1,4 +1,4 @@
-# To the People of Planet Earth
+# Melody2Midi - Music Symphony
 
 Greetings! We hope this message resonates with you, and we extend our heartfelt wishes to all those dedicated to fostering creativity in our world. Together, we stand united in supporting those who enrich the lives of others. As we stand on the cusp of a new era, collective efforts can transform dreams into reality, and our strength lies in our unity as a global community.
 
